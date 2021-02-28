@@ -1,1 +1,1 @@
-# moveon.com
+# smarthostels.rw
